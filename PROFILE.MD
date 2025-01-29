@@ -1,1 +1,1 @@
-welcome to mi profile!
+welcome to my profile!
